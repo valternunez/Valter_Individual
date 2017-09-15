@@ -1,0 +1,1 @@
+Valter_Individual
